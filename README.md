@@ -1,3 +1,3 @@
 # My-Translation-Board
 
-For what I love.
+For whom and What I love.
