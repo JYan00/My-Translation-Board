@@ -8,9 +8,11 @@ LEE JI HOON
 
 The dreams and breaths of the continually evolving SUGA.
 
+
 GQ: How are you doing these days? Are you doing well?
 
 最近怎么样？过得好吗？
+
 
 Suga: I’m doing just right. Yes, I think that’s the perfect expression for how I’m doing. I’m able to work with incredible people and I’m not going through anything negative at the moment. I feel at peace these days.
 
