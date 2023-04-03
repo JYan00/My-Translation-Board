@@ -1,6 +1,6 @@
 # Contents
 
-21.12 Rolling Stone Interview
+* 21.12 Rolling Stone Interview
 
 
 ## 21.12 Rolling Stone Interview
@@ -62,9 +62,11 @@ I’d say it’s the interesting thoughts within me. It’s a rare move for some
 
 **There’s “SUGA” of BTS, solo artist “AGUST D,” and commercial producer “BY SUGA.” How much does each of these parts take up?**
 
+**BTS 成员 SUGA，歌手 AGUST D，制作人 BY SUGA。
+
 All three are me. They each take up a third of myself, and one isn’t more reflective of me than another. I simply give people a choice. These three sides of myself are incredibly different, so I’m giving people a choice to see me as they want.
 
-三个名字都是我啊。也没有哪一个名字更能反映我
+三个名字都是我啊。它们各占据了我的三分之一，也没有哪一个名字更能反映我这一说。我只是给大众选择而已。这三面的我都完全不同，所以我让大众自己选择看到我的哪一面。
 
 **Is there a certain standard or point at which you stop working on a piece? Even in a painting video [broadcasted on YouTube Live] last year, you barely put down your paintbrush.**
 
