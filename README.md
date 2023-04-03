@@ -59,6 +59,8 @@ I’d say it’s the interesting thoughts within me. It’s a rare move for some
 
 All three are me. They each take up a third of myself, and one isn’t more reflective of me than another. I simply give people a choice. These three sides of myself are incredibly different, so I’m giving people a choice to see me as they want.
 
+三个名字都是我啊。也没有哪一个名字更能反映我
+
 **Is there a certain standard or point at which you stop working on a piece? Even in a painting video [broadcasted on YouTube Live] last year, you barely put down your paintbrush.**
 
 I stop working when nothing comes out. I just stop. I’m not the type to cling onto something when it doesn’t work. But when I’m in the zone, I’m hardly aware of the time. I think I’m like that with everything, not just painting. If I find something I like, I carry it to a ridiculous point. I keep at it for a long time simply because it’s fun.
@@ -74,7 +76,7 @@ They do if you think they’re special, but they don’t if you don’t think th
 How interesting. It’s not easy to keep delving into a field with a constant level of excitement and curiosity. It makes me think of how you’ve stated in all your interviews that you intend to make music for a very long time. Is there a way for a person to continue doing something they like for a long time?
 It’s possible only if you don’t like it too much. If you like something too much, it’s difficult to carry on for a long time. I used to like music too much. I loved it so much that I tried to like it less. I’m still trying to love it less.
 
-如果你不那么爱它，就有可能。要是太爱了，会很难长期坚持下去。以前我就是太爱音乐了。就是因为爱得不行，所以我试着少爱它点。现在我还在试着少爱点。
+如果你不那么爱它，就有可能。要是太爱了，会很难长期坚持下去。以前我就是太爱音乐了。正是因为爱得不行，所以我试着少爱它点。现在我还在试着少爱点。
 
 **Even now?**
 
@@ -84,17 +86,19 @@ Yes. I don’t listen to music unless I’m working on my own music. I keep it a
 
 对啊。我自己制作歌曲的时候不会听其他音乐，会尽可能离它们远点，只有在需要听音乐的时候才找来听。要是太爱什么东西，总会遇到因为太爱而不得不放弃的时刻；得和它保持某种距离，才能长期坚持，不被消耗心力。如果赋予一件事太多意义，它就会变得难以为继。
 
-When did you start keeping music at a certain distance?
+**When did you start keeping music at a certain distance?**
+
+你从什么时候开始和音乐保持距离的？
 
 About five years ago. I think it was the right move. I can let it flow naturally and not try too hard. After all, even if I get stuck while working on a track, we’re a team, so there’s always someone who can tie up the loose ends. In a way, it means I’ve come to rely on the members a lot. Of course, I still have a sense of responsibility, but it’s nice to know that there are people who will catch me if I make a mistake.
 
-五年前吧。这个决定还是正确的。
+五年前吧。这个决定还是正确的。我可以让它自然流动，不要太努力。毕竟，即使我在赛道上工作时遇到困难，我们也是一个团队，所以总有人可以解决松散的问题。在某种程度上，这意味着我开始非常依赖成员。当然，我仍然有责任感，但很高兴知道如果我犯了错误，有人会抓住我。
 
 **There are many meaty and hard-hitting themes in BTS’ music. You’ve dealt with themes like dreams, reality, loneliness and hope – things that scratched my own itch. What keywords are left, do you think?**
 
 Don’t you think we’ll keep talking about our dreams? I continue to live with dreams, and I’ll continue to dream in the future. It’s still difficult to decide what our focus will be for this next chapter following the release of “Dynamite”.
 
-Yes, people are paying close attention to see what themes you’ll raise next.
+**Yes, people are paying close attention to see what themes you’ll raise next.**
 
 I will definitely have more to say in the future, because I like to share what I’m experiencing firsthand. I guess I’ll need to keep moving forward on this endless seesaw ride.
 
